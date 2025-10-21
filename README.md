@@ -14,7 +14,7 @@ Multifandom ; FNAF, Skycotl, Minecraft, Alan Becker(AvA/AvM), CoD, TRUD, Depth S
 ....      
        
          
-:: mostly sitting alone . always iwc    
+:: mostly sitting alone, or with a friend . always iwc    
 ! C+H always welcome as always unless state otherwise.    
 ! i always love to make new friends, but ask before friending me.         
 :: hvy C+H, comf, usually nv       
