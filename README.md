@@ -21,7 +21,7 @@ A devoted Dottore main — if it offends you, kindly remove yourself from my hou
      
 C*H always welcome unless stated otherwise.     
 Public chat is disabled — whispers only.      
-UI often off down — if you type outside my field of view, it simply dies down and i will not respond your calls.     
+UI often down — if you type outside my field of view, it simply dies down and i will not respond your calls.     
      
 Thread lightly. I care little for age or title; if you irritate me or spit something i hated, you’ll find yourself muted—  
 fifteen minutes at best, an hours or perma block at worst.        
