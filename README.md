@@ -1,62 +1,39 @@
-:: greeting fellow! It's me **"Forever Filthy Soul"** !!
 
 
-I goes by— Ray, Rook, Doc, or Soul.    
-or you can even give me random nicknames.    
-main acc ; @aviledoktxr (discord /aviledoktxr)      
-
-i speak ; Thai, English and Russian(amateur)   
-kinsong ; Shun-ran , Inazuma by John/TOOBOE on YouTube !    
-
-Multifandom ; FNAF, Skycotl, Minecraft, Alan Becker(AvA/AvM), CoD, TRUD, Depth Spelunking, Pressure, Blocktale, Dandy's World, Forsaken, SEWH, DOD, PHIGHTING, and many more!
-      
-      
-....      
+⟣⟢ 𝘐 𝘨𝘶𝘦𝘴𝘴 𝘩𝘰𝘭𝘥𝘪𝘯𝘨 𝘢 𝘨𝘳𝘶𝘥𝘨𝘦 𝘤𝘢𝘯 𝘣𝘦 𝘭𝘪𝘬𝘦 𝘭𝘰𝘷𝘦 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴. ⟣⟢
        
-         
-:: mostly sitting alone, or with a friend . always iwc    
-! C+H always welcome as always unless state otherwise.    
-! i always love to make new friends, but ask before friending me.         
-:: hvy C+H, comf, usually nv       
-
-all pronouns are fine, he/him are preferred.
-        
-       
-....
+      
+𝙉𝙖𝙢𝙚𝙨 :: Ray · Rook · Dear · Swan 　　| 　　He　 /　They     
+𝙈𝙖𝙞𝙣 𝙖𝙘𝙘 :: @aviledoktxr (Discord /aviledoktxr)    
+    
+A devoted Dottore main — if it offends you, kindly remove yourself from my house.    
+    
+    
+━━━━━━━━━━━━━━━━━━━━━━━━━━    
      
      
-**STATUS**     
-
-🟢 . Idle or chilling, int freely!     
-🌙 . safk or spec, resting, sleeping, or offtab      
-🚫 . busy/playing or afk, late replies. whispers preferred.    
-      
-       
+🟢 . idle / available — interact freely     
+🌙 . offtab / s-afk — resting, spectating     
+⛔ . busy / away — replies may scatter. whispers preferred.      
      
-. be mindful of DNI'S and Warnings !      
+• Be mindful of DNI’s and Warnings •     
+• Interact with caution; patience isn’t sainthood •     
+     
+C*H always welcome unless stated otherwise.     
+Public chat is disabled — whispers only.      
+UI often off down — if you type outside my field of view, it simply dies down and i will not respond your calls.     
+     
+Thread lightly. I care little for age or title; if you irritate me or spit something i hated, you’ll find yourself muted—  
+fifteen minutes at best, an hours or perma block at worst.        
+dont try act like youre a close friend to me when youre not.      
+        
+If you are under 16–17, stay away.     
+No hatred. Just distance for both our sakes.      
       
-      
-....
-
-
-**IMPORTANT NOTE** :     
-      
-      
-: I do a lot of shadings test, I always try new styles and if its look similar to yours. Please let me know.
+━━━━━━━━━━━━━━━━━━━━━━━━━━     
+    
        
-       
-        
-" heavily inspirations are limited to close friends only , ask permission before taking slight inspo and do not copy any of my skins . please be aware that i got copied a lot before , if you see anyone copying me . . please do contact me and let me know "
-       
-        
-: dont be weird or inappropriate around me unless you're an adult.       
-and oh, I suggest you to avoid chatting/interact with me if youre under 15+ , this is for your own good and myself.       
-I am myself over 18+ years, so be mindful of our interactions. I do not want anything bad happened.                       
-
-
-        
-....   
-         
-        
-**Thanks for your understanding. Sincerely.**       
-— Forever Filthy Soul       
+if im with @/naz_ryuu , do not approach me.     
+     
+     
+━━━━━━━━━━━━━━━━━━━━━━━━━━
