@@ -29,7 +29,8 @@ dont try act like youre a close friend to me when youre not.
         
 If you are under 16–17, stay away.     
 No hatred. Just distance for both our sakes.      
-      
+
+           
 ━━━━━━━━━━━━━━━━━━━━━━━━━━     
     
        
