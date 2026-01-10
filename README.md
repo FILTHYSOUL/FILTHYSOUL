@@ -1,10 +1,40 @@
-![Screenshot_2025-06-09-01-26-41-63_080032403b0f3d7ce099ec68649d222a2-1](https://github.com/user-attachments/assets/0f6807dd-9c54-40b1-a315-6d62e268c7c6)
 
 
+⟣⟢ 𝘐 𝘨𝘶𝘦𝘴𝘴 𝘩𝘰𝘭𝘥𝘪𝘯𝘨 𝘢 𝘨𝘳𝘶𝘥𝘨𝘦 𝘤𝘢𝘯 𝘣𝘦 𝘭𝘪𝘬𝘦 𝘭𝘰𝘷𝘦 𝘴𝘰𝘮𝘦𝘵𝘪𝘮𝘦𝘴. ⟣⟢
+       
+      
+𝙉𝙖𝙢𝙚𝙨 :: Ray · Rook · Dear · Swan 　　| 　　He　 /　They     
+𝙈𝙖𝙞𝙣 𝙖𝙘𝙘 :: @aviledoktxr (Discord /aviledoktxr)    
+    
+A devoted Dottore main — if it offends you, kindly remove yourself from my house.    
+    
+    
+━━━━━━━━━━━━━━━━━━━━━━━━━━    
+     
+     
+🟢 . idle / available — interact freely     
+🌙 . offtab / s-afk — resting, spectating     
+⛔ . busy / away — replies may scatter. whispers preferred.      
+     
+• Be mindful of DNI’s and Warnings •     
+• Interact with caution; patience isn’t sainthood •     
+     
+C*H always welcome unless stated otherwise.     
+Public chat is disabled — whispers only.      
+UI often down — if you type outside my field of view, it simply dies down and i will not respond your calls.     
+     
+Thread lightly. I care little for age or title; if you irritate me or spit something i hated, you’ll find yourself muted—
+fifteen minutes at best, an hours or perma block at worst.        
+dont try act like youre a close friend to me when youre not.      
+        
+If you are under 16–17, stay away.     
+No hatred. Just distance for both our sakes.      
 
- [🟢 . Idle]⠀⠀⠀[🌙 . s-afk ／ sleeping]⠀⠀⠀[⛔️. Busy]
-⠀
-⠀      
- ⠀          
- ⠀      
- [read it.]( https://pronouns.cc/@aviledoktxr)
+           
+━━━━━━━━━━━━━━━━━━━━━━━━━━     
+    
+       
+if im with @/naz_ryuu , do not approach me.     
+     
+     
+━━━━━━━━━━━━━━━━━━━━━━━━━━
