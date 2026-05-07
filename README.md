@@ -1,6 +1,6 @@
 <div align="center"> 
 
-<img width="100" height="20" alt="stamp" src="https://komarev.com/ghpvc/?username=toxicoz&label=voided﹐++&color=202121" />
+<img width="100" height="20" alt="stamp5" src="https://komarev.com/ghpvc/?username=toxicoz&label=voided﹐++&color=202121" />
 <br>
 
 <div align="center"> 
