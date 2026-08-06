@@ -5,6 +5,6 @@
 
 <div align="center"> 
 
-[**twitter**](https://x.com/ewwlyse)⠀⠀[**atabook**](https://seildirectory.atabook.org/)⠀⠀[**strawpage**](https://nashv3in.straw.page/)⠀
+[**twitter**](https://x.com/ewwlyse)⠀⠀[**atabook**](https://seildirectory.atabook.org/)⠀⠀[**strawpage**]()⠀
 
 
