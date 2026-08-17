@@ -7,4 +7,5 @@
 
 [**twitter**](https://x.com/ewwlyse)⠀⠀[**atabook**](https://seildirectory.atabook.org/)⠀⠀[**strawpage**](https://ewlyse.straw.page)⠀
 
+<img src="https://files.catbox.moe/vdg38c.png" align="middle" width="40%"></a>
 
